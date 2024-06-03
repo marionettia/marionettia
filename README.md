@@ -13,5 +13,5 @@
 </p>
 
 <p align="center">
-$\mathscr{\color{#85746e}{16\ }\color{#85746e}{she \ her \ only}}$
+$\mathscr{\color{#85746e}{16\ }\color{#85746e}{she \ her \ }}$
 </p>
