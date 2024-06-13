@@ -17,8 +17,8 @@
 
 <div align="center">
 
-[![](https://i.postimg.cc/8PNSFj7L/Untitled72-20240613181748.png)](https://mari.atabook.org/)
-[![](https://i.postimg.cc/7hz5tb3x/Untitled71-20240613180554.png)](https://retrospring.net/@marionettia)
+[![](https://i.postimg.cc/yxDxGjR4/Untitled73-20240613183456.png)](https://mari.atabook.org/)
+[![](https://i.postimg.cc/zGGz20Yd/Untitled73-20240613183404.png)](https://retrospring.net/@marionettia)
 [![](https://i.postimg.cc/8C8Nwwyr/Untitled71-20240613180750.png
 )](https://rentry.co/adsped)
 
